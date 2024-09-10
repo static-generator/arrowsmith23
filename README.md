@@ -9,3 +9,5 @@ Heres a list of a few stuff i like since i want to experiment with text lol
 - 3d Modeling
 - Drawing
 - Singing
+
+I am really not social person at all lol
