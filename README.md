@@ -1,7 +1,8 @@
 # Hello
-I am Rami Napoles (CN:23)
+*I am Rami Napoles (CN:23)*
 
-# I enjoy these music listings from Mili
+I enjoy these music listings from [**Mili**](https://www.youtube.com/channel/UCVh47EKH9VLresRqiYi9txw)
+
 
 ![image](https://github.com/user-attachments/assets/cdd7d2e9-adc1-4f14-9b0a-2e9449e03b61)
 
